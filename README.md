@@ -65,3 +65,11 @@
 
 1:31 象看着一切所造的都甚好．有晚上、有早晨、是第六日。
 
+
+
+
+
+
+
+<iframe frameborder="no" border="0" marginwidth="0" marginheight="0" width=330 height=86 src="//music.163.com/outchain/player?type=2&id=333750&auto=1&height=66"></iframe>
+
